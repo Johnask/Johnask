@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Johnask
+- 👀 I’m interested in about of design
+- 🌱 I’m currently learning UX/UI design
